@@ -1,2 +1,12 @@
 # edu
 edi1
+
+https://arianagrande-tour.us
+https://oliviadean-tour.us
+https://edsheerantour.us
+https://ladygaga-tour.us
+https://davidguettatour.us
+https://morganwallentour.us/
+https://dojacat-tour.us
+https://theneighbourhoodtour.us/
+https://zachbryantour.us/
